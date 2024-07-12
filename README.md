@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @WynnofThule
 - 👀 I’m interested in history, science, music and anime.
 - 🌱 I’m currently learning conlanging
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... good question.
 - 📫 How to reach me @wynnofthule on Discord
 - 😄 Pronouns: they/she/it
-- ⚡ Fun fact: I don't really even code. This is just for the conlanging stuff I'm autistic about.
+- ⚡ Fun fact: I don't really know how this shit works.
